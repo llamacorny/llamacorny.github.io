@@ -1,1 +1,0 @@
-# llamacorny.github.io
